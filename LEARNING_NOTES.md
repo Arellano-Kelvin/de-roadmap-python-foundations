@@ -1,0 +1,1 @@
+restarting a second time to get better foundation and not use ai as crutch
